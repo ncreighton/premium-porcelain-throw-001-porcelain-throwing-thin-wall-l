@@ -1,0 +1,2 @@
+# premium-porcelain-throw-001-porcelain-throwing-thin-wall-l
+Tired of inconsistent thin walls that collapse or warp without warning? Stop guessing—start logging every variable with the Porcelain Throwing Thin Wall Log.  This Notion template gives you a structured, repeatable system to track each throwing session—clay body, moisture level, wheel speed, wall thickness, and firing results. No more relying on me
